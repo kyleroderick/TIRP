@@ -1,3 +1,7 @@
+# The Intellectual Drinking Game
+They love to talk technology, movies, TV, and the future of the human race. Tim disagrees, Adam is introspective, and Chris is sorry. Set the oven to 375º and you’ve got The Intellectual Radio Program. This game can be played while listening to the show live or after you've downloaded the podcast.
+
+
 ## One Drink
 - Chris calls Adam without asking
 - "Is that a euphemism?"
@@ -34,3 +38,7 @@
 - "avclark everywhere"
 - "I used to write at The Bold Report"
 - The "you know" quotient hits at least 300 times in one episode
+
+
+Disclaimer: Alcohol is not required.  When drinking beverages containing alcohol remember to drink responsibly and know your limits.  Consumption of too much alcohol can result in serious injury or even death. 
+Have fun and be safe! 
