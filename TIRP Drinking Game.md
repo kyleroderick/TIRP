@@ -40,5 +40,5 @@ They love to talk technology, movies, TV, and the future of the human race. Tim 
 - The "you know" quotient hits at least 300 times in one episode
 
 
-Disclaimer: Alcohol is not required.  When drinking beverages containing alcohol remember to drink responsibly and know your limits.  Consumption of too much alcohol can result in serious injury or even death. 
-Have fun and be safe! 
+Disclaimer: Alcohol is not required.  When drinking beverages containing alcohol remember to drink responsibly and know your limits. 
+Have fun and be safe!
