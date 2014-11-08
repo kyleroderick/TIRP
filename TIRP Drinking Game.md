@@ -16,6 +16,8 @@ They love to talk technology, movies, TV, and the future of the human race. Tim 
 - "The Google juice."
 - "It's your show."
 - TextExpander snippet sound
+- Adam interrupts an ad-read
+- "Don't send me to the basement"
  
 ## Two Drinks
 - "When are we having your wife on?"
@@ -29,6 +31,7 @@ They love to talk technology, movies, TV, and the future of the human race. Tim 
 - Chris accidentally plays audio/video
 - Adam talks about being twitter-famous
 - "You were, what, ___ years old?"
+- "If you're new, they're not all like this..."
 
 ## Continuously Drink While
 - Adam talks about the possibility of interviewing Marc Maron
@@ -37,7 +40,7 @@ They love to talk technology, movies, TV, and the future of the human race. Tim 
 ## Finish your Drink
 - "avclark everywhere"
 - "I used to write at The Bold Report"
-- The "you know" quotient hits at least 300 times in one episode
+- The "you know" quotient hits 300 in one episode
 
 
 Disclaimer: Alcohol is not required.  When drinking beverages containing alcohol remember to drink responsibly and know your limits. 
